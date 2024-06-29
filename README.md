@@ -30,4 +30,6 @@ Canggu just isn’t for you. An example of this is Atlas Beach Fest and Finns Be
 
 what make things worse is canggu area controlled by mafia from certain country. these people think they are above the law...............until they have problem with the law especially with the immigration. lol
 
+*
 
+As an Aussie, while I try to be kind to everyone throughout my trip sometimes I feel like I’ve had enough people try to start a chat with me only for it to turn into a sales pitch for one day and might become a bit stand-offish.
