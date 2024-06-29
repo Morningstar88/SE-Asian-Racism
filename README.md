@@ -14,4 +14,8 @@ Man yeah it sucks, but when you’re white and you travel anywhere in SEA you ge
 
 It is tough. I totally understand how horrible that must have felt; and it was a racist reaction, but at the same time, ‘tourist’ Bali can be exhausting. My biggest annoyance was when crossing the road. Often, crossing roads is a stressful experience if you’re not used to the relaxed nature of traffic in Asia. When a gap in the traffic finally opened up, I’d be preparing myself to nip across the road and then the last vehicle would slow down and stop, blocking the road in front of me. The driver would look at me and say (without any real expectation), “taksi?”
 
+*
+
+What are your thoughts on Ni Luh Putu? The online influencer. To me, she's an opportunistic xenophobe. Weaponising bule misconduct to further her political ambitions. Social cohesion be damned.
+
 
