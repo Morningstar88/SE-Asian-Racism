@@ -22,6 +22,10 @@ What are your thoughts on Ni Luh Putu? The online influencer. To me, she's an op
 
 White guy. It happened at a few of the temples. Besakih was the worst. I actually had three guys surround me and tell me I had to pay them each to enter the temple. I refused and left. I reported it to one of the leaders at another temple. He said there have been issues there for awhile, and it was giving visitors a terrible experience that would hurt Bali's reputation long term. Not sure if anything was ever done about it.
 
+*
+
+Canggu just isn’t for you. An example of this is Atlas Beach Fest and Finns Beach Club. The former is always filled with wealthy Indonesians (likely Jakartans as locals generally don’t have beach club money) and they all look bored as fuck, as if someone on instagram told them this is what you do to be cool. Finn’s on the other hand is always full of westerners who are GENUINELY having a good time, drinking and dancing and not on their phones looking bored. If you know you know.
+
 
 
 
