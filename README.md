@@ -1,1 +1,1 @@
-List of racist comments I have heard in my time here. 
+## List of racist comments I have heard in my time here. 
