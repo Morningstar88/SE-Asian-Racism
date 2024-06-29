@@ -18,4 +18,10 @@ It is tough. I totally understand how horrible that must have felt; and it was a
 
 What are your thoughts on Ni Luh Putu? The online influencer. To me, she's an opportunistic xenophobe. Weaponising bule misconduct to further her political ambitions. Social cohesion be damned.
 
+*
+
+White guy. It happened at a few of the temples. Besakih was the worst. I actually had three guys surround me and tell me I had to pay them each to enter the temple. I refused and left. I reported it to one of the leaders at another temple. He said there have been issues there for awhile, and it was giving visitors a terrible experience that would hurt Bali's reputation long term. Not sure if anything was ever done about it.
+
+
+
 
