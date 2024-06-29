@@ -37,3 +37,5 @@ As an Aussie, while I try to be kind to everyone throughout my trip sometimes I 
 *
 
 https://www.washingtonpost.com/travel/2023/04/11/bali-bad-tourists-deported/
+
+https://www.reddit.com/r/bali/search/?q=attitude&
