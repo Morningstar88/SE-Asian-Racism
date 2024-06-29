@@ -26,6 +26,8 @@ White guy. It happened at a few of the temples. Besakih was the worst. I actuall
 
 Canggu just isn’t for you. An example of this is Atlas Beach Fest and Finns Beach Club. The former is always filled with wealthy Indonesians (likely Jakartans as locals generally don’t have beach club money) and they all look bored as fuck, as if someone on instagram told them this is what you do to be cool. Finn’s on the other hand is always full of westerners who are GENUINELY having a good time, drinking and dancing and not on their phones looking bored. If you know you know.
 
+*
 
+what make things worse is canggu area controlled by mafia from certain country. these people think they are above the law...............until they have problem with the law especially with the immigration. lol
 
 
