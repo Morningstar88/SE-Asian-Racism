@@ -38,6 +38,13 @@ As an Aussie, while I try to be kind to everyone throughout my trip sometimes I 
 
 Same. Bali attracts a lot of racist white people from around the world. Low quality people on a low quality island. And I mean that with the upmost respect toward Indonesians. The fact is Bali is the overrated, white trash island of Indonesia. Better off visiting any of the other islands.
 
+*
+
+Yes, it's an issue that is top of many people's minds these days, and although it's been growing, since the pandemic it seems to be so much worse. If people were just coming to visit or retire here it wouldnt' be so bad. But some act as if they are lords and masters to the locals and had some attitude issues like "youre so lucky we are here, without us you are nothing." (being diplomatic here). Now there are loads of russian day clubs and mini-cities being built and diverting livelihoods from the local Balinese/Indonesians. What really irks is that Bali is becoming less of a cultural and arts destination which had made Bali famous since at least the 1930s, and more of hotspot and influencer lifestyle place. It's really changed and not for the better.
+
+
+
+
 
 
 https://www.washingtonpost.com/travel/2023/04/11/bali-bad-tourists-deported/
